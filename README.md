@@ -1,2 +1,2 @@
 # politica-de-privacidade
-Politica de Privacidade do Aplicativo Lembrancinhas Personalizadas
+Política de Privacidade do Aplicativo Lembrancinhas Personalizadas
